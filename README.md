@@ -24,6 +24,6 @@ My life started at Brockton hospital on Septmember 15th, 2003 as the first and o
  # Hobbies
 1. One of my hobbies is playing video games on my xbox and Gaming Laptop.
 2. A hobby that I used to do was collecting sports cards like Baseball and football cards.
-3. I also enjoy working out at my local YMCA to help imrpove my sports performance
+3. I also enjoy working out at my local YMCA to help improve my sports performance
 
 > "You miss 100 percent of the shots you dont take."
